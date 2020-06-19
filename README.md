@@ -17,8 +17,3 @@ https://user-images.githubusercontent.com/49438167/84606190-029dff80-aea4-11ea-8
 
 https://user-images.githubusercontent.com/49438167/84606199-0fbaee80-aea4-11ea-8e0f-3d070e03c6f6.png
 
-
-
-
-
-https://github.com/WesleyNjoko/Securityjob-web-project/issues/2#issue-640619261
